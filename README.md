@@ -16,3 +16,6 @@ If you encounter any issues, please don't hesitate to reach out to me.
 Mail : Pourya.Faraz@gmail.com
 
 tutorial Video will Upload as soon as possible :)
+
+check this : 
+https://youtu.be/uw_c8uryuY4
